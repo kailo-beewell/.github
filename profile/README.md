@@ -1,4 +1,4 @@
-# 🐝 #BeeWell delivery by Kailo in Northern Devon
+# 🐝 #BeeWell delivered by Kailo in Northern Devon
 
 As part of Kailo, we are piloting a local adaptation of the #BeeWell survey with schools in North Devon and Torridge in 2023/24.
 
